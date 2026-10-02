@@ -1,4 +1,4 @@
-<img src="https://github.com/user-attachments/assets/470a565f-c4b8-42ac-bb3e-2af15639bb50" width="487" align="right"> 　 ${\textsf{\color{#184477} Jealousy,}}$ ${\textsf{\color{#1c637a} Jealousy,}}$ ${\textsf{\color{#33868d} Jealousy!}}$ ${\textsf{\color{#33868d} it's such}}$ ${\textsf{\color{#1c637a} an evil}}$ ${\textsf{\color{#184477} thing}}$
+<img src="https://github.com/user-attachments/assets/470a565f-c4b8-42ac-bb3e-2af15639bb50" width="350" align="right"> 　 ${\textsf{\color{#184477} Jealousy,}}$ ${\textsf{\color{#1c637a} Jealousy,}}$ ${\textsf{\color{#33868d} Jealousy!}}$ ${\textsf{\color{#33868d} it's such}}$ ${\textsf{\color{#1c637a} an evil}}$ ${\textsf{\color{#184477} thing}}$
 
 
 
