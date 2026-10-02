@@ -2,7 +2,7 @@
 
 
 
-　　　　<img src="https://github.com/user-attachments/assets/72692754-7541-48bd-8235-5595c23fda66" width="300" align="center" />          　　　　　　　
+　　　　<img src="https://github.com/user-attachments/assets/72692754-7541-48bd-8235-5595c23fda66" width="200" align="center" />          　　　　　　　
 
 
 
@@ -12,6 +12,6 @@
 
 
 
-　　　         　<img src="https://github.com/user-attachments/assets/2d32cd68-4fa7-46b8-9912-2d32b8a6bb15" width="300" align="center">
+　　　         　<img src="https://github.com/user-attachments/assets/2d32cd68-4fa7-46b8-9912-2d32b8a6bb15" width="200" align="center">
 
   　 　  　  　  　     ${\textsf{\color{#184477} to}}$ ${\textsf{\color{#1c637a} watch}}$ ${\textsf{\color{#33868d} some}}$ ${\textsf{\color{#33868d} one}}$ ${\textsf{\color{#1c637a} like}}$ ${\textsf{\color{#184477} you}}$
