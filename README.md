@@ -13,5 +13,3 @@
 
 
 　　　         　<img src="https://github.com/user-attachments/assets/2d32cd68-4fa7-46b8-9912-2d32b8a6bb15" width="260" align="center">
-
-  　 　  　  　  　     ${\textsf{\color{#184477} to}}$ ${\textsf{\color{#1c637a} watch}}$ ${\textsf{\color{#33868d} some}}$ ${\textsf{\color{#33868d} one}}$ ${\textsf{\color{#1c637a} like}}$ ${\textsf{\color{#184477} you}}$
