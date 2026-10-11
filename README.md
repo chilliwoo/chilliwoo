@@ -7,7 +7,7 @@
 
 
 
-　　　　  [carrd.co](https://plceholderwip.carrd.co/)　　　[listograpee](https://plceholderwip.carrd.co/)　　　[strawpage](https://plceholderwip.carrd.co/)
+　　　　  [carrd.co](https://plceholderwip.carrd.co/)　　　[pronouns.cc](https://pronouns.cc/@beauty0fhatred)　　　[strawpage](https://plceholderwip.carrd.co/)
 
 
 
