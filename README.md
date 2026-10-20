@@ -1,15 +1,12 @@
-<img src="https://github.com/user-attachments/assets/470a565f-c4b8-42ac-bb3e-2af15639bb50" width="400" align="right"> 　 ${\textsf{\color{#184477} Jealousy,}}$ ${\textsf{\color{#1c637a} Jealousy,}}$ ${\textsf{\color{#33868d} Jealousy!}}$ ${\textsf{\color{#33868d} it's such}}$ ${\textsf{\color{#1c637a} an evil}}$ ${\textsf{\color{#184477} thing}}$
+<img src="https://github.com/user-attachments/assets/470a565f-c4b8-42ac-bb3e-2af15639bb50" width="400" align="right"> 　 
 
 
 
-　　　　<img src="https://github.com/user-attachments/assets/72692754-7541-48bd-8235-5595c23fda66" width="260" align="center" />          　　　　　　　
+　　　<img src="https://github.com/user-attachments/assets/f152d4fd-b563-46e0-b5ad-abc406012adb" width="300" align="center" />          　　　　　　　
 
-
-
-
-　　　　  [carrd.co](https://plceholderwip.carrd.co/)　　　[pronouns.cc](https://pronouns.cc/@beauty0fhatred)　　　[strawpage](https://plceholderwip.carrd.co/)
+　　　　　　　　[carrd.co](https://plceholderwip.carrd.co/)　　　[pronouns.cc](https://pronouns.cc/@beauty0fhatred)　　　[strawpage](https://plceholderwip.carrd.co/)
 
 
 
 
-　　　         　<img src="https://github.com/user-attachments/assets/2d32cd68-4fa7-46b8-9912-2d32b8a6bb15" width="260" align="center">
+　　　       　　　　　　　　　　　<img src="https://github.com/user-attachments/assets/495ee802-de40-4aa3-ac90-ceca681be307" width="300" align="center">
